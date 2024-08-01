@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RecruiterAlina
-- 👀 I’m interested in finding new talents for my orranization
+- 👀 I’m interested in finding new talents for my company
 - 📫 How to reach me alinatri357@gmail.com
 - 😄 Pronouns: Recruiter, IT jobs, open vacancies for IT specialists
 
